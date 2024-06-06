@@ -4,13 +4,15 @@
 ### 最新发布地址：
 feiseavfb10.com ~ feiseavfb20.com
 ### 最新地址：
-fs004.cc
+fs969.com
 #### 备用地址1：
-fs011.cc
+fs878.com
 #### 备用地址2：
-fs012.cc
+fs141x292.xyz
 #### 备用地址3：
-fs013.cc
+fs144x186.xyz
+#### 备用地址4：
+fs80av22.cc
 #### 永久地址：fsav.tv
 #### 历史地址：fs-av.com
 ## 如果不能訪問，请查看備用地址↑↑↑↑或者曆史網址
