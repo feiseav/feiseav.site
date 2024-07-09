@@ -1,4 +1,4 @@
-![image](https://github.com/feiseav/feiseav.site/assets/136965640/29fcf74f-7a23-4909-a790-6e0a3c1255da)![image](https://github.com/feiseav/feiseav.site/assets/136965640/3c5134e5-d764-4218-82e8-ce8bc55d50cc)## 绯色av地址发布（强烈建议收藏本发布页网址永不走丢）
+## 绯色av地址发布（强烈建议收藏本发布页网址永不走丢）
 #### 2024-6-6更新
 ### 請收藏本頁面鏈接
 ### 最新发布地址：
