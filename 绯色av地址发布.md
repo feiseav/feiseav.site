@@ -4,13 +4,13 @@
 ### 最新发布地址：
 feiseavfb10.com ~ feiseavfb20.com
 ### 最新地址：
-fs141x292.xyz
+fs96av98.cc
 #### 备用地址1：
-fs001x181.xyz
+feise0019.cc
 #### 备用地址2：
-fs138x228.xyz
+fsav0014.cc
 #### 备用地址3：
-fs005x214.xyz
+fs64av09.cc
 #### 备用地址4：
 fs155x119.xyz
 
