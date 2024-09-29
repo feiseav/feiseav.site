@@ -1,18 +1,18 @@
 ## 绯色av地址发布（强烈建议收藏本发布页网址永不走丢）
 ## 移动屏蔽本站,请用联通.电信网络访问
-#### 2024-8-6更新
+#### 2024-9-29更新
 ### 最新发布地址：
 feiseavfb10.com ~ feiseavfb20.com
 ### 最新地址：
-https://914.fs01av.cc
+fs76av.cc
 ### 最新地址：
-https://914.fs15av.cc
+fs95av.cc
 ### 最新地址：
-https://914.fs16av.cc
+fs55av.cc
 ### 最新地址：
-https://914.fs36av.cc
+fs96av.cc
 ### 最新地址：
-https://914.fs45av.cc
+fs56av.cc
 
 #### 永久地址：fsav.tv
 #### 历史地址：fsav.xyz
