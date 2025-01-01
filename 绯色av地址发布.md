@@ -1,18 +1,18 @@
-## 绯色av地址发布（强烈建议收藏本发布页网址永不走丢）
+![image](https://github.com/user-attachments/assets/4ff7eb0c-67b5-4c23-bcca-c5610f512d29)## 绯色av地址发布（强烈建议收藏本发布页网址永不走丢）
 ## 移动屏蔽本站,请用联通.电信网络访问
 #### 2024-9-29更新
 ### 最新发布地址：
 feiseavfb10.com ~ feiseavfb20.com
 ### 最新地址：
-fs76av.cc
+fs019.cc
 ### 最新地址：
-fs95av.cc
+fs014.cc
 ### 最新地址：
-fs55av.cc
+fs013.cc
 ### 最新地址：
-fs96av.cc
+fs011.cc
 ### 最新地址：
-fs56av.cc
+fs01av.cc
 
 #### 永久地址：fsav.tv
 #### 历史地址：fsav.xyz
